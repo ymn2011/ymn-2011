@@ -5,4 +5,10 @@ https://www.dropbox.com/scl/fi/g4etylkn6b7pite737ibl/accent.zip?rlkey=13bnckqma9
 
 
 اكسنت 16
+
 https://www.dropbox.com/scl/fi/cyxeehvevvkfc7o5xfdcj/Hyundai_Accent_Solaris_16-17.zip?rlkey=atlspqppnztegydtxqwa6fqu3&st=83x67nr6&dl=1
+
+
+ماب عثيم السلي
+
+https://www.dropbox.com/scl/fi/2fgpmhlgen89xk65r7wgw/3thim_AL_SLy.zip?rlkey=hvevd3h6hgu3jjqvwf8ixdrqp&st=rl46yuco&dl=1
