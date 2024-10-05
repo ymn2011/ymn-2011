@@ -12,3 +12,13 @@ https://www.dropbox.com/scl/fi/cyxeehvevvkfc7o5xfdcj/Hyundai_Accent_Solaris_16-1
 ماب عثيم السلي
 
 https://www.dropbox.com/scl/fi/2fgpmhlgen89xk65r7wgw/3thim_AL_SLy.zip?rlkey=hvevd3h6hgu3jjqvwf8ixdrqp&st=rl46yuco&dl=1
+
+
+كامري 25
+
+https://www.dropbox.com/scl/fi/f7gfh2unewsnhx4xgy101/camry25_by_Meto_and_iEviil.zip?rlkey=z9vxxkqlrj1aziksjiyfu896a&dl=1
+
+
+كروز 17
+
+https://www.dropbox.com/scl/fi/8lst00z9d8gzgn7bsrqy0/cruze16.zip?rlkey=v4yst15ib5p1izwiks92szsrj&st=xd7vt07w&dl=1
