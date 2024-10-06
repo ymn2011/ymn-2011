@@ -57,7 +57,7 @@ https://www.dropbox.com/scl/fi/uj65vdmbd8sw51mt3ubjk/landsg.zip?rlkey=a84hoqil6q
 
 فورد فكتوريا
 
-https://www.modland.net/beamng.drive-mods/cars/ford-crown-victoria-arab-version.html
+https://modsfire.com/2XT16UZzZTEgZbU
 
 
 كامري 2006
