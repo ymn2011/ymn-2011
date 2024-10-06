@@ -20,6 +20,7 @@ https://www.dropbox.com/scl/fi/f7gfh2unewsnhx4xgy101/camry25_by_Meto_and_iEviil.
 
 
 
+
 كروز 17
 
 https://www.dropbox.com/scl/fi/8lst00z9d8gzgn7bsrqy0/cruze16.zip?rlkey=v4yst15ib5p1izwiks92szsrj&st=xd7vt07w&dl=1
@@ -68,3 +69,8 @@ https://modsfire.com/BRfr2TAZKvKU101
 فورد 
 
 https://modsfire.com/308Qvgrg6xe8oXT
+
+
+جمس سيرا 2017-2015 
+
+https://modsfire.com/fF7drsZz4j7YpIh 
