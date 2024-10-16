@@ -1,5 +1,10 @@
 # ymn-2011
 
+كامري 2004
+
+https://www.dropbox.com/scl/fi/hy7xwac80e6d61w28t383/wLi_camry2004.zip?rlkey=4we6o8zl53t5p0ke0abl1omz0&st=ofuzda3z&dl=1
+
+
 اكسنت
 https://www.dropbox.com/scl/fi/g4etylkn6b7pite737ibl/accent.zip?rlkey=13bnckqma9k0nwqfg7wfedhwx&st=rjqtyka8&dl=1
 
