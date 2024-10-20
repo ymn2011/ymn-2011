@@ -154,3 +154,8 @@ https://www.modhub.us/beamng-drive-mods/toyota-land-cruiser-033
 ماب توكسيك 
 
 https://www.mediafire.com/file/bvbtq083xr43leo/0Toxic_Street_v1_1.zip/file
+
+
+كابرس v2
+
+https://modsfire.com/sw691BoW44h8voN
