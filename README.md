@@ -1,8 +1,8 @@
 # ymn-2011
 
 سبارك
+https://www.dropbox.com/scl/fi/f67arl8r2uxj5or3y9az3/spark2021.zip?rlkey=i2mqu2fdv5bt8t8jwpi6jpfr8&st=hqz3hdu1&dl=1
 
-https://www.mediafire.com/file/n9j2fpkyxhe7ftu/spark2021.rar/file
 
 ددسن
 https://www.dropbox.com/scl/fi/l03jk6w2ijwgzzklsq6hk/warning_ddsn.zip?rlkey=qkl16ns2w97i6itoax09jf32b&st=5h5kufj6&dl=1
