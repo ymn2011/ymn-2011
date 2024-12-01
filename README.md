@@ -19,7 +19,7 @@ https://modsfire.com/W0FTj271ND66Wt9
 
 ماب اسيتو
 
-https://www.dropbox.com/scl/fi/b3131knd04a1u76tngnxk/a3dm_maptest.zip?rlkey=vzecra36sot3fllxbhrqfubne&st=81uep1u4&dl=2
+https://www.dropbox.com/scl/fi/b3131knd04a1u76tngnxk/a3dm_maptest.zip?rlkey=vzecra36sot3fllxbhrqfubne&st=81uep1u4&dl=10
 
 سبارك
 https://www.dropbox.com/scl/fi/f67arl8r2uxj5or3y9az3/spark2021.zip?rlkey=i2mqu2fdv5bt8t8jwpi6jpfr8&st=hqz3hdu1&dl=1
