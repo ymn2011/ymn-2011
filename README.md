@@ -1,9 +1,8 @@
 # ymn-2011
 
-شاص
+لومينا
 
-https://www.dropbox.com/scl/fi/m21lux45r4hrob9psqv4w/LAND_CRUSER_TOYOTA_J79___40_1__41_.zip?rlkey=kgnjrqffv3g0jgfyv0l5lejc7&st=mo9kewl4&dl=1
-
+https://modsfire.com/xOF4289Xejw1OMd
 
 
 شارع الشفاء 
