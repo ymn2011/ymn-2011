@@ -1,7 +1,6 @@
 # ymn-2011
-
-هايلكس
-https://www.mediafire.com/file/br1za3n1cfs9ky2/Nolimts+Toyota+Hilux+2009-2011.rar/file
+كامري
+https://modsfire.com/download/eGW7Gpt25K9jx3e/024b9
 
 
 i10
