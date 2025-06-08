@@ -1,8 +1,7 @@
 # ymn-2011
+ماب جديد
 
-كيا
-https://modsfire.com/d7s2xpazVK85vmb
-
+https://www.dropbox.com/scl/fi/ga28e4f2tbtzh952ys3bs/Jozef_Meto_Dayre.zip?rlkey=yup92lk136dvivid0g5pyaiyx&st=9vk7h4nx&dl=1
 
 ماب
 https://www.dropbox.com/scl/fi/gz3bu400zge6w64pheuu3/al_yasmin_3ks_3.zip?rlkey=4h6rxwy6smr1wiitn9jv0urih&st=ikphlrpp&dl=1
