@@ -1,21 +1,7 @@
 # ymn-2011
+ماب النظيم
 
-يارس
-https://modsfire.com/Rrq5c9v3Im42GUF
-
-
-ماب
-https://modsfire.com/rTU5AO70KRvsv3K
-
-
-كورلا
-https://modsfire.com/D7iiLJ57gm1i7gk
-
-
-ماب ث
-https://modsfire.com/EXQAj2EU86HFRkH
-
-
+https://modsfire.com/2KM551a7L89t7Pb
 
 ماب جديد
 
