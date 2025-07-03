@@ -1,5 +1,10 @@
 # ymn-2011
 
+اكورد
+
+https://modsfire.com/n5d4BpRnaxDTQoA
+
+
 اكورد١١
 
 https://www.dropbox.com/scl/fi/1ww7r35a7j3f1ntu40fz1/kash_accord.zip?rlkey=j18aept05euzp1nqe66iit2vg&st=wvx79t2v&dl=1
