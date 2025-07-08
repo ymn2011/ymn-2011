@@ -12,6 +12,11 @@ ______________________________________
 https://www.dropbox.com/scl/fi/tly7clvaaiwalf3lgsewf/Hyundai_Accent_2010_KHwylD.zip?rlkey=vy2v0reuv3ew62qgblzvt04rn&st=ggp2tqj6&dl=1
 
 
+اكسنت 2010 خويلد (2)
+
+https://modsfire.com/kZQUHJla9634sh2
+
+
 يارس
 https://www.dropbox.com/scl/fi/kuri7fit23is18cpqnc0i/vehicles.zip?rlkey=3hlxpe7ok6z4619nh60yv3s99&st=19lftd9g&dl=1
 
