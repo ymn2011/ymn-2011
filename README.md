@@ -12,6 +12,12 @@ ______________________________________
 https://www.dropbox.com/scl/fi/excs43hoqltxmjlzge0s1/cv3.zip?rlkey=osiixd09tlbu9s4pkj9oi2l1k&st=1frp6a4y&dl=1
 
 
+اكورد جديده حصرية (2)
+
+https://modsfire.com/HC8L6FvBOF4CM3a
+
+
+
 سيراتو 2022 (1)
 
 https://www.dropbox.com/scl/fi/ayozgwybf46ot9buitx4h/CeratoFIR.zip?rlkey=3v10pokpi2c30bh0aqcf2xuwk&st=har70rly&dl=1
