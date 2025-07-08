@@ -7,6 +7,11 @@ ______________________________________
 ______________________________________
 للمعلومية لكل مود له رابطين واحد عليه رقم 1 والثاني رقم 2 للعلم كلها نفس المود بس عشان اذا ماشتغل معاك الرابط الأول بيشتغل معاك الرابط الثاني والعكس صحيح
 
+اكورد جديده حصريه (1)
+
+https://www.dropbox.com/scl/fi/excs43hoqltxmjlzge0s1/cv3.zip?rlkey=osiixd09tlbu9s4pkj9oi2l1k&st=1frp6a4y&dl=1
+
+
 سيراتو 2022 (1)
 
 https://www.dropbox.com/scl/fi/ayozgwybf46ot9buitx4h/CeratoFIR.zip?rlkey=3v10pokpi2c30bh0aqcf2xuwk&st=har70rly&dl=1
