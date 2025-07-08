@@ -7,6 +7,12 @@ ______________________________________
 ______________________________________
 للمعلومية لكل مود له رابطين واحد عليه رقم 1 والثاني رقم 2 للعلم كلها نفس المود بس عشان اذا ماشتغل معاك الرابط الأول بيشتغل معاك الرابط الثاني والعكس صحيح
 
+كامري 2012 (1)
+
+https://www.dropbox.com/scl/fi/lujzcohf0fyam5q56ko79/camry2012.zip?rlkey=5tx9xaf13lj2l7mxqbqr2oeg7&st=mdck6ooy&dl=1
+
+
+
 اكورد جديده حصريه (1)
 
 https://www.dropbox.com/scl/fi/excs43hoqltxmjlzge0s1/cv3.zip?rlkey=osiixd09tlbu9s4pkj9oi2l1k&st=1frp6a4y&dl=1
