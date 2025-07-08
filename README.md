@@ -12,6 +12,10 @@ ______________________________________
 https://www.dropbox.com/scl/fi/lujzcohf0fyam5q56ko79/camry2012.zip?rlkey=5tx9xaf13lj2l7mxqbqr2oeg7&st=mdck6ooy&dl=1
 
 
+كامري 2012 (2)
+
+https://modsfire.com/3C42WRIsGFL3nN4
+
 
 اكورد جديده حصريه (1)
 
