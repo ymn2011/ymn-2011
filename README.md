@@ -11,6 +11,11 @@ ______________________________________
 
 https://www.dropbox.com/scl/fi/ayozgwybf46ot9buitx4h/CeratoFIR.zip?rlkey=3v10pokpi2c30bh0aqcf2xuwk&st=har70rly&dl=1
 
+سيراتو 2022 (2)
+
+https://modsfire.com/915Ep6RKK0gs6QO
+
+
 اكسنت 2010 خويلد (1)
 
 https://www.dropbox.com/scl/fi/tly7clvaaiwalf3lgsewf/Hyundai_Accent_2010_KHwylD.zip?rlkey=vy2v0reuv3ew62qgblzvt04rn&st=ggp2tqj6&dl=1
