@@ -7,6 +7,13 @@ ______________________________________
 ______________________________________
 للمعلومية لكل مود له رابطين واحد عليه رقم 1 والثاني رقم 2 للعلم كلها نفس المود بس عشان اذا ماشتغل معاك الرابط الأول بيشتغل معاك الرابط الثاني والعكس صحيح
 
+
+شاص (1)
+
+https://www.dropbox.com/scl/fi/cdzdcw0pem497dczhnt5o/warning_cr.zip?rlkey=b9g1jntnan04kmnmqbr2wx4nt&st=b7ra3kkv&dl=1
+
+
+
 كامري 2012 (1)
 
 https://www.dropbox.com/scl/fi/lujzcohf0fyam5q56ko79/camry2012.zip?rlkey=5tx9xaf13lj2l7mxqbqr2oeg7&st=mdck6ooy&dl=1
