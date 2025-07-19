@@ -7,6 +7,10 @@ ______________________________________
 ______________________________________
 للمعلومية لكل مود له رابطين واحد عليه رقم 1 والثاني رقم 2 للعلم كلها نفس المود بس عشان اذا ماشتغل معاك الرابط الأول بيشتغل معاك الرابط الثاني والعكس صحيح
 
+النترا 21_23. (1)
+
+https://www.dropbox.com/scl/fi/9l7in348u510ytm5hut1o/vehicles.zip?rlkey=kz4lexzzmf4nk7f2oukzqlmwy&st=7gxv3x51&dl=1
+
 ماب عدم (1)
 
 https://www.dropbox.com/scl/fi/r4rcr1x9usnzzexmbngwz/a3dm_maptest.zip?rlkey=f5g0msfv425lci34i8vsjb5be&st=41rwonrl&dl=1
