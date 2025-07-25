@@ -11,6 +11,11 @@ ______________________________________
 
 https://www.dropbox.com/scl/fi/xbasa7vz7q5yf0nh6nwz7/Meto.zip?rlkey=r9gpvskfhcpeccx652ofwq3ma&st=6qpy4f6g&dl=1
 
+ماب خريص النظيم+التشاليح (2)
+
+https://modsfire.com/gMu9Q6IMZRiD2p0
+
+
 
 النترا 23-21 (1)
 
