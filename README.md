@@ -7,6 +7,11 @@ ______________________________________
 ______________________________________
 للمعلومية لكل مود له رابطين واحد عليه رقم 1 والثاني رقم 2 للعلم كلها نفس المود بس عشان اذا ماشتغل معاك الرابط الأول بيشتغل معاك الرابط الثاني والعكس صحيح
 
+ماب rg (1)
+
+https://www.dropbox.com/scl/fi/6fp7jpvj8jmk77kansjzu/Raf7h.zip?rlkey=h0xvg9x6e6zsm8jw1suc8a8l8&st=y79pt1gp&dl=1
+
+
 ماب خريص النظيم+التشاليح (1)
 
 https://www.dropbox.com/scl/fi/xbasa7vz7q5yf0nh6nwz7/Meto.zip?rlkey=r9gpvskfhcpeccx652ofwq3ma&st=6qpy4f6g&dl=1
