@@ -7,6 +7,10 @@ ______________________________________
 ______________________________________
 للمعلومية لكل مود له رابطين واحد عليه رقم 1 والثاني رقم 2 للعلم كلها نفس المود بس عشان اذا ماشتغل معاك الرابط الأول بيشتغل معاك الرابط الثاني والعكس صحيح
 
+بيقاس
+
+https://www.dropbox.com/scl/fi/ro93x50ytdanyjr77hz31/pegas_2018_meto.zip?rlkey=8u5rmrtsjjw5pntwjh17sr0mp&st=t52twe79&dl=1
+
 ماب rg (1)
 
 https://www.dropbox.com/scl/fi/6fp7jpvj8jmk77kansjzu/Raf7h.zip?rlkey=h0xvg9x6e6zsm8jw1suc8a8l8&st=y79pt1gp&dl=1
